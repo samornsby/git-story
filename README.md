@@ -6,13 +6,13 @@ Alice was beginning to get very [BLANK_1] of sitting by her sister on the bank, 
 
 So she was considering in her own mind (as well as she could, for the hot day made her feel very [BLANK_3] and stupid), whether the pleasure of making a [BLANK_4]-chain would be worth the trouble of getting up and picking the daisies,
 
-when suddenly a White Rabbit with [BLANK_5] eyes ran close by her. There was nothing so very remarkable in that; nor did Alice think it so very much out of the way to hear the Rabbit say to itself, "Oh dear! Oh dear! I shall be [BLANK_6]!"
+when suddenly a White Rabbit with red eyes ran close by her. There was nothing so very remarkable in that; nor did Alice think it so very much out of the way to hear the Rabbit say to itself, "Oh dear! Oh dear! I shall be [BLANK_6]!"
 
 But when the Rabbit actually took a watch out of its waistcoat-pocket, and looked at it, and then hurried on, Alice started to her feet,
 
 for it flashed across her mind that she had never before seen a rabbit with either a waistcoat-pocket, or a watch to take out of it,
 
-and burning with curiosity, she ran across the field after it, and fortunately was just in time to see it pop down a large rabbit-hole under the hedge.
+and burning with curiosity, she ran across the field after it, and fortunately was just in time to see it pop down a large rabbit-hole under the hedge.meow meow gfgu
 
 In another moment down went Alice after it, never once considering how in the world she was to get out again.
 

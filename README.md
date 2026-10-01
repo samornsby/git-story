@@ -4,7 +4,7 @@ Alice was beginning to get very [BLANK_1] of sitting by her sister on the bank, 
 
 "and what is the use of a book," thought Alice, "without pictures or conversations?"
 
-So she was considering in her own mind (as well as she could, for the hot day made her feel very [BLANK_3] and stupid), whether the pleasure of making a [BLANK_4]-chain would be worth the trouble of getting up and picking the daisies,
+So she was considering in her own mind (as well as she could, for the hot day made her feel very [BLANK_3] and stupid), whether the pleasure of making a DAISY-chain would be worth the trouble of getting up and picking the daisies,
 
 when suddenly a White Rabbit with [BLANK_5] eyes ran close by her. There was nothing so very remarkable in that; nor did Alice think it so very much out of the way to hear the Rabbit say to itself, "Oh dear! Oh dear! I shall be [BLANK_6]!"
 

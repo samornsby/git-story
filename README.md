@@ -1,8 +1,8 @@
-# Alice's Adventures in Wonderland 2
+# Alice's Adventures in Wonderland with Jack 2
 
 Alice was beginning to get very [BLANK_1] of sitting by her sister on the bank, and of having nothing to do: once or twice she had peeped into the book her sister was reading, but it had no pictures or conversations in it,
 
-"and what is the use of a book," thought Alice, "without pictures or conversations?"
+"and what is the use of a book," thought Alice and Jack, "without pictures or conversations?"
 
 So she was considering in her own mind (as well as she could, for the hot day made her feel very [BLANK_3] and stupid), whether the pleasure of making a [BLANK_4]-chain would be worth the trouble of getting up and picking the daisies,
 
